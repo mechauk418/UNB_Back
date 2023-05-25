@@ -58,6 +58,12 @@ UNB는 다양한 주제들로 양자택일 토론을 하고, 가볍게 즐길 �
 ## 6. 결과
 
 ![결과1](https://velog.velcdn.com/images/mechauk418/post/b8986f49-59a7-4eca-b130-92fe7e453399/image.jpg)
+![결과2](https://velog.velcdn.com/images/mechauk418/post/e0b5c142-09a7-4ae8-ae81-c882a8347f21/image.jpg)
+![결과3](https://velog.velcdn.com/images/mechauk418/post/f9c6cd0b-ac3a-4b0d-9654-79054e534b3f/image.jpg)
+![결과4](https://velog.velcdn.com/images/mechauk418/post/0321658d-f58b-40ed-89f0-4b41fdea98f9/image.jpg)
+![결과5](https://velog.velcdn.com/images/mechauk418/post/32ece918-58f9-45df-9037-416db1eb469c/image.jpg)
+![결과6](https://velog.velcdn.com/images/mechauk418/post/32996483-a783-4d48-8401-a1ab30fdd640/image.jpg)
+
 
 ## 7. 프로젝트 후기
 
